@@ -16,8 +16,8 @@ his greedy wife, and his snivelling, spoiled children. One day, the aardvark
 reflected on the meaning of his life and his career and on the unchecked,
 catastrophic decline of his nation, its pathetic excuse for leadership, and the
 complete ineffectiveness of any personal effort he could make to change the
-status quo. Overcome by a wave of utter depression and self- doubt, he decided
-to take the only course of action that would bring him greater comfort and
+status quo. Overcome by a wave of utter depression and self-doubt, he decided to
+take the only course of action that would bring him greater comfort and
 happiness: he drove to the mall and bought imported consumer electronics goods.
 
 Moral of the story: Invest in foreign consumer electronics manufacturers.
